@@ -1,5 +1,3 @@
 hellllllo!!!
 
-sdfsfsaf djfljsadl
-sdfs
-sdf
+здравствуйте господа!
